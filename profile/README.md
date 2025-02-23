@@ -5,7 +5,7 @@ We are a locally owned and operated business with over 30 years of experience in
 
 ## Contact Us
 📍 **Serving United States
-📞 ** <a href="https://tel:845-202-4692/" target="_blank">Call us at 845-202-4692</a>**  
+📞 **[Call us at 845-202-4692](https://tel:845-202-4692)**
 
 ## Our Services
 
